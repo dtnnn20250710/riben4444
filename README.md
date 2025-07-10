@@ -24,4 +24,4 @@
 
 立即点击上方任意入口，解锁你在2025年最畅快的日本成人影片观影体验！
 
-<span style="display:none;">[Canonical link]  (  ）</span>
+<span style="display:none;">[Canonical link]  ( https://github.com/dtnnn20250710/riben4444 ）</span>
